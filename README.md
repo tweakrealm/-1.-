@@ -1,1 +1,2 @@
 # -1.-
+<img width="1921" height="1080" alt="Программа" src="https://github.com/user-attachments/assets/47577492-7643-4ddc-a4f9-1efd3a62227b" />
